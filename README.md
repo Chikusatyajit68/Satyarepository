@@ -1,2 +1,1 @@
 # Satyarepository
-# Satyarepository
